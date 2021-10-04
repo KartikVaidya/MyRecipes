@@ -1,0 +1,1 @@
+Potatoes, Vegetable Oil (Canola Oil, Soybean Oil, Hydrogenated Soybean Oil, Natural Beef Flavor [Wheat and Milk Derivatives]*, Citric Acid [Preservative], Dextrose, Sodium Acid Pyrophosphate (Maintain Color), Salt.
